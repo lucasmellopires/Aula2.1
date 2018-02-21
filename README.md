@@ -1,3 +1,4 @@
 Atriz - Cleo Pires
-Atriz - Debora Seco
+Atriz - Jim Query
 Ator - Tiririca
+Ator - Vin Diesel
