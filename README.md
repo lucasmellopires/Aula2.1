@@ -1,2 +1,3 @@
-# Aula2.1
-Atividade20_02_2018
+Atriz - Cleo Pires
+Atriz - Debora Seco
+Ator - Tiririca
